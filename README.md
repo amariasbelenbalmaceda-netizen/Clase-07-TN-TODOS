@@ -12,4 +12,4 @@
 > * Numeración de páginas
 > * Alineación de párrafos
 ---
-Adjunto Link [[Archivo](https://drive.google.com/drive/folders/1l8ub-vIl5IqoD4Ro4t6Bc8htmkHAuf_X?usp=sharing)]
+Adjunto Link [[Archivo](https://docs.google.com/document/d/1dWOjOiyAvupeopA6LjPYANbl6RcmfDNU/edit)]
